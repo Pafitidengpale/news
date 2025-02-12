@@ -1,1 +1,2 @@
 # news
+# Jangan dengki bos
